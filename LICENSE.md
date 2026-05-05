@@ -1,4 +1,4 @@
-
+rare Scripts for anime vanguards is the best anime vanguards Script, featuring auto-farm and aimbot. Safe and powerful for all your needs.
 
 
 
